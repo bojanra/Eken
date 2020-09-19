@@ -15,3 +15,8 @@ kvinte kvante ven ga fuc
 ## Angleško
 
 bum bum pa
+
+## nemško
+
+Ene mene mu und raus bist du.
+
