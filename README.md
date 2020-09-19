@@ -23,3 +23,7 @@ Ene mene mu und raus bist du.
 ## Angleško
 
 bum bum pa
+
+## nemško
+
+Ene mene mu und raus bist du.
