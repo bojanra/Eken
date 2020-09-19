@@ -1,5 +1,9 @@
 ## Eken
 
+`avtor`
+
+## Slovensko
+
 ekate pekate cukate me
 
 fibe fabe domine
