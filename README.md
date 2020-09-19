@@ -1,6 +1,6 @@
 ## Eken
 
-`avtor`
+Avtor: **Bojan**
 
 ## Slovensko
 
