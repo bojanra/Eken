@@ -11,3 +11,7 @@ fibe fabe domine
 ektum pektum kufer stuc
 
 kvinte kvante ven ga fuc 
+
+## Angleško
+
+bum bum pa
