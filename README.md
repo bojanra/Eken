@@ -20,6 +20,8 @@ bum bum pa
 
 Ene mene mu und raus bist du.
 
+3 mal 7 ist feiner Sand
+
 ## italjansko
 
 ciao bela
